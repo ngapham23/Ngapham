@@ -1,0 +1,2 @@
+# Ngapham
+Đánh bạc
